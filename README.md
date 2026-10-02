@@ -1,4 +1,4 @@
-# This is the most hypocritical post you'll read today
+# This is a hypocritical skill
 
 Your AI writing is such an annoyance to me that I am sharing a 12-page field guide (and usable skill) to identifying and eliminating AI writing tells.
 
